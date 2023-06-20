@@ -3,9 +3,9 @@
 
 	4 ovos
 	2 cenouras
-	3 xÃ­caras de farinha
-	1 xÃ­cara de aÃ§Ãºcar
-	1 xÃ­cara de Ã³leo
+	4 xícaras de farinha
+	1 xícara de açúcar
+	1 xícara de óleo
 	1 colher de fermento
 
 	Modo de preparo:
